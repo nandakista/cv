@@ -1,3 +1,3 @@
 # CV Nanda Kista Permana
-klik link dibawah ini untuk melihat :
+klik link berikut untuk melihat :
 https://nandakista.github.io/cv/
